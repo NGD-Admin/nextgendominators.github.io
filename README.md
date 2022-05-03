@@ -1,1 +1,0 @@
-# nextgendominators.github.io
